@@ -5,6 +5,21 @@ Hi, I'm raja 👋
 
 I'm passionate about solving programming challenges and ensuring smooth, immersive gameplay, bringing creative ideas to life through coding.
 
+
+![Ringcolorforgif-ezgif com-video-to-gif-converter](https://github.com/user-attachments/assets/ecf47cbe-8f94-4a0a-b322-8dbb15bebd76)
+
+
+
+![icesidescrollforgif-ezgif com-speed](https://github.com/user-attachments/assets/02f34f73-b515-4eb1-ba01-295ee6fc8926)
+
+
+
+![hockeypongforgif-ezgif com-video-to-gif-converter](https://github.com/user-attachments/assets/6bcc1197-98d5-4f42-a588-5017e25637bc)
+
+
+
+
+
 **📩Email** <br>
 234radja@gmail.com
 
